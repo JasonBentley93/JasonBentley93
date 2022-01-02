@@ -4,6 +4,6 @@
 - 📫 How to reach me: 
         
         Twitter DM: @JasonBe01306124
-        Email: jasonb93@uw.edu
+        Email:      jasonb93@uw.edu
 
 
